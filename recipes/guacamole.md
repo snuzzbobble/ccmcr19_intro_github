@@ -7,4 +7,4 @@
 - pinch of salt
 - pepper
 - 1/2 red chilli
-- 1/2 a lime
+- 1/2 a lime (or lime juice)
