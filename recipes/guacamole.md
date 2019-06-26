@@ -8,3 +8,7 @@
 - pepper
 - 1/2 red chilli
 - 1/2 a lime (or lime juice)
+
+## Directions
+- Put the ingredients in a bowl
+- smoosh them together
